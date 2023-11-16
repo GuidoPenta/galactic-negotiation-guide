@@ -1,2 +1,4 @@
-# galactic-guide-to-negotiation
-galactic guide to negotiation in tech
+# Guida Galattica alla negoziazione / Galactic Guide to negotiation
+
+
+
